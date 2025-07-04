@@ -1,16 +1,13 @@
-## Hi there 👋
+<div align="center">
+  <img src="https://github.com/user-attachments/assets/a1b0e2ef-78d0-4155-ba05-9a1dd4d43970">
+</div>
 
-<!--
-**agent-graham/agent-graham** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+‎.　if i dont like you ill bite　⌓⌓
 
-Here are some ideas to get you started:
+<p align="center">
+‎⊂⊱　caninekin　﹐w/ boyfie 24/7　⊰⊃
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<div align="center">
+  <img src="https://github.com/user-attachments/assets/33677978-bc91-45be-85a0-b9ed850ffa7f">
+</div>
